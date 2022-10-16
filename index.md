@@ -1,1 +1,36 @@
+# 2022年10月16日信息
+# 题目：复活的盼望
+# 经文：哥林多前书15:12-58
+# 讲员：王姊妹
+<audio controls src="./复活的盼望.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/196016961-cfa1890a-07bc-4c9c-aab1-0ed53b98c923.png)
+![image](https://user-images.githubusercontent.com/91267933/196016969-8d265939-02fc-4905-8ede-b7eb4c334a6c.png)
+![image](https://user-images.githubusercontent.com/91267933/196016975-e790ec9e-5142-48f0-b404-3f871a4ec1ee.png)
+![image](https://user-images.githubusercontent.com/91267933/196016981-5913d733-5c7e-4a38-8d7d-43cc7524475f.png)
+![image](https://user-images.githubusercontent.com/91267933/196016983-749a1cb1-b098-46bc-913a-c41ddd38ca30.png)
+![image](https://user-images.githubusercontent.com/91267933/196016985-261c0f8b-07e0-4611-aa37-2a4a264c654f.png)
+![image](https://user-images.githubusercontent.com/91267933/196016986-0d26e05c-8cab-4173-9faf-65c57abefcee.png)
+![image](https://user-images.githubusercontent.com/91267933/196016988-1c47a483-d8ad-49b0-a0ce-f0f4f6605db5.png)
+![image](https://user-images.githubusercontent.com/91267933/196016992-8825b363-53f2-446c-ab8d-5b1f2cdc53dd.png)
+![image](https://user-images.githubusercontent.com/91267933/196016995-470d48f3-1e45-44c8-8435-6200a5ef7b4a.png)
+![image](https://user-images.githubusercontent.com/91267933/196016996-37dc47fc-76d2-4244-b2b4-b9f8299c1312.png)
+![image](https://user-images.githubusercontent.com/91267933/196017005-71553911-bc57-4610-bc78-6b7f669c6850.png)
+![image](https://user-images.githubusercontent.com/91267933/196017010-1cbdd2ac-3d19-4321-b1b6-880721df8929.png)
+![image](https://user-images.githubusercontent.com/91267933/196017014-434321e7-d577-4bf3-b7b4-640e20bd87a3.png)
+![image](https://user-images.githubusercontent.com/91267933/196017017-57fc2179-0306-4f28-a4ac-46c12d749fa5.png)
+![image](https://user-images.githubusercontent.com/91267933/196017019-aec4ff4e-6128-4ce1-9970-eb315463a74a.png)
+![image](https://user-images.githubusercontent.com/91267933/196017020-8de3162e-aec2-4d31-aecb-3e00478f389b.png)
+![image](https://user-images.githubusercontent.com/91267933/196017024-a6b3608c-3b46-47fe-b448-d75694816b36.png)
+![image](https://user-images.githubusercontent.com/91267933/196017031-d53a00b9-7577-4189-ae37-721f985d0f41.png)
+![image](https://user-images.githubusercontent.com/91267933/196017032-b0c8eac5-7307-40be-a35d-6a310e58a86c.png)
+![image](https://user-images.githubusercontent.com/91267933/196017038-fc374f7d-678b-4f63-8380-19eefa74b9c5.png)
+![image](https://user-images.githubusercontent.com/91267933/196017041-4de60ef4-ee07-4806-b1d6-94dbc0a366d1.png)
+![image](https://user-images.githubusercontent.com/91267933/196017043-2dc55063-3215-4ed7-9c6d-b13582006ab0.png)
+![image](https://user-images.githubusercontent.com/91267933/196017045-ddfa50e3-0d96-4c34-9c30-41eddeeaa4ff.png)
+![image](https://user-images.githubusercontent.com/91267933/196017049-1bc60499-e0cb-46b8-b5e5-443bb30f4a7c.png)
+![image](https://user-images.githubusercontent.com/91267933/196017065-dbd95f84-f3da-4614-aadc-a77733b27003.png)
+![image](https://user-images.githubusercontent.com/91267933/196017078-4452f1ce-9abd-4dc9-9cde-8dcf632a127c.png)
+![image](https://user-images.githubusercontent.com/91267933/196017082-98ad393e-ca54-4662-a060-39035508068f.png)
+![image](https://user-images.githubusercontent.com/91267933/196017086-72e6aa38-66df-4d7b-a707-1c39c83840c6.png)
+![image](https://user-images.githubusercontent.com/91267933/196017087-d27004f5-068c-4cfa-b3cd-10f8037392eb.png)
 
